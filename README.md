@@ -25,5 +25,4 @@ Estou buscando **estágio em TI**, com foco em dados, suporte e automação.
 ## 📫 Contato
 
 - E-mail: cristiansouzaaraujo@gmail.com
-- LinkedIn: *(coloque aqui o link do seu perfil)*
-
+- LinkedIn: [linkedin.com/in/cristian-souza-051aa12b7](https://www.linkedin.com/in/cristian-souza-051aa12b7)
